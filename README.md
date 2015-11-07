@@ -1,3 +1,3 @@
 
-# Dinstein's BLog
+# Dinstein's Blog
 
